@@ -1,2 +1,2 @@
 # duantuigegelxh.github.io
-sadf
+你好，欢迎
